@@ -57,6 +57,50 @@ https://twitter.com/mrsorokaa/status/1502983453452734468
 
 
 
+Photo 1: A Ukrainian woman called Marina Met and her son Ivan, photographed on a summer night in central Kyiv. 
+
+ Photo 2: Their graves in Irpin, where they lived and were killed on March 5, according to the date on the makeshift crosses.  Before Russia vs after Russia.
+
+https://twitter.com/olya_rudenko/status/1502765675454111747
+
+
+
+![1](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220314/10.jpg)
+
+![2](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220314/11.jpg)
+
+------------
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
