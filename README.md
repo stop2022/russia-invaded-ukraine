@@ -319,31 +319,52 @@ Now it’s officially denazified and liberated by Russia.
 
 
 
-
+# Before WarDay22
 
 ------------
 
+# WarDay22
+
+[@christogrozev](https://twitter.com/christogrozev):Multiple reports that Russian forces dropped a bomb on Mariupol drama theatre where (at least until yesterday) hundreds of people were taking refuge. If confirmed refugees were still inside, this would be potentially the worst civilian harm incident and an undisputable war crime.
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220317/1.jpg)
 
 
 
+---
+
+[@BackAndAlive](https://twitter.com/BackAndAlive):Kyiv, March 17.  According to the State Emergency Service, one person was killed, three were injured and a total of 30 were evacuated as a result of a downed Russian missile hitting a residential building in the Darnytskyi district of Kyiv.
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220317/2.jpg)
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220317/3.jpg)
+
+---
+
+[@avalaina](https://twitter.com/avalaina):In Mariupol, practically not a single building remained without damage - almost 90% of the city was destroyed» - officials reported. The houses are either in ruins or damaged as a result of attacks by the Russians.Russians are destroying a city with 400,000 civilians.#Mariupol
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220317/4.jpg)
+
+---
+
+[@avalaina](https://twitter.com/avalaina): The satellite Maxar Technologies recorded footage of the aftermath of the shelling of Chernihiv by the Russians.
+On them you can see burning houses, as well as significantly damaged football stadium.
 
 
 
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220317/5.jpg)
 
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220317/6.jpg)
 
+---
 
+[@avalaina](https://twitter.com/avalaina): 
 
+#WarDay #22 #Mariupol will be no more. 80-90% of the city bombed or damaged somehow. 400K people city and only 2K children evacuated. Mariupol is destroyed from the sky. #NoFlyZone much needed
 
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220317/7.jpg)
 
-
-
-
-
-
-
-
-
-
+---
 
 
 
