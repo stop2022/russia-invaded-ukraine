@@ -319,6 +319,13 @@ Now it’s officially denazified and liberated by Russia.
 
 
 
+-------------
+
+Another atrocity of russian occupiers in Chernigiv today. 
+They fired on civilians standing in the line to buy bread. At least 10 were killed.
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220316/8.jpg)
+
 # Before WarDay22
 
 ------------
@@ -366,15 +373,19 @@ On them you can see burning houses, as well as significantly damaged football st
 
 ---
 
+[@lesiavasylenko](https://twitter.com/lesiavasylenko):
 
+#Kharkiv Barbashov market burns - one of the largest in Eastern Europe. Lavina Mall in #Kyiv destroyed. Almost as if #Russia is bombing commercial space out of spite for all the shops and brands that pulled out from their markets.
 
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220318/1.jpg)
 
+--------
 
+Choreographer Alexei Ratmansky: 'Artyom Datsishin,  a principal dancer with National Opera House of Ukraine died today in the Kyiv hospital from wounds received on Feb 26 when he got under Russian artillery fire. He was a beautiful dancer loved by his colleagues. Unbearable pain'
 
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220318/2.jpg)
 
-
-
-
+--------
 
 
 
