@@ -326,11 +326,11 @@ They fired on civilians standing in the line to buy bread. At least 10 were kill
 
 ![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220316/8.jpg)
 
-# Before WarDay22
+## Before WarDay22
 
 ------------
 
-# WarDay22
+## WarDay22
 
 [@christogrozev](https://twitter.com/christogrozev):Multiple reports that Russian forces dropped a bomb on Mariupol drama theatre where (at least until yesterday) hundreds of people were taking refuge. If confirmed refugees were still inside, this would be potentially the worst civilian harm incident and an undisputable war crime.
 
@@ -387,9 +387,55 @@ Choreographer Alexei Ratmansky: 'Artyom Datsishin,  a principal dancer with Nati
 
 --------
 
+## 2022-03-19
+
+[@avalaina](https://twitter.com/avalaina):
+
+Kharkiv. Ukrainian medics are trying to save the life of a little boy who was rescued from the rubble after Russian shelling
+#RussianWarCrimes
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220319/1.jpg)
+
+---
+
+[@OlenaHalushka](https://twitter.com/OlenaHalushka):
+
+For 24 days russia has been destroying my beautiful Ukraine. russian bombs and missiles are still thrown on peaceful towns. Kids are dying. Ukraine still needs advanced air & missile defense systems, drones, jets, anti-ship & anti-tank weapons. Help us to 
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220319/2.jpg)
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220319/3.jpg)
+
+---
+
+[@KyivIndependent](https://twitter.com/KyivIndependent):
+
+Strollers have been put in central Lviv on March 18, representing the number of children killed in Russia's war against Ukraine.
+
+According to Prosecutor General’s Office, Russian forces have killed 109 children and injured more than 130 since Feb. 24. 
 
 
 
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220319/4.jpg)
 
 
 
+---
+
+[@Prodigi0_1](https://twitter.com/Prodigi0_1):
+
+Mientras los rusos descartan imágenes gráficas de niños ucranianos heridos, un médico revela el verdadero horror infligido a los pacientes jóvenes.
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220319/5.jpg)
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220319/6.jpg)
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220319/7.jpg)
+
+----
+
+[@prostotak182](https://twitter.com/prostotak182):I am Russian. These meetings/concerts are arranged by the government, people from state facilities (schools, utility companies, government companies etc.) are forced to participate, if they don't, they get fired. This is just for the TV propaganda, nothing more nothing less.
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220319/8.jpg)
+
+----
