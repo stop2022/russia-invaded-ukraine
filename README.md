@@ -439,3 +439,89 @@ Mientras los rusos descartan imágenes gráficas de niños ucranianos heridos, u
 ![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220319/8.jpg)
 
 ----
+
+## 2022-03-20
+
+
+
+[@SklRoma](https://twitter.com/SklRoma):
+
+It was my home.
+Boulevard Shevchenka 359
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220320/1.jpg)
+
+
+
+-----
+
+[@nexta_tv](https://twitter.com/nexta_tv):
+
+Activists have created a petition to the #Swiss authorities to expel Putin's mistress, #Russian athlete Alina Kabaeva, from the country.
+
+The petition has already been signed by 30,000 people.
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220320/2.jpg)
+
+---
+
+[@avalaina](https://twitter.com/avalaina):
+
+Mariupol after many days of Russian shelling. 
+#RussianWarCrimes 
+Video: The Guardian
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220320/3.jpg)
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220320/4.jpg)
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220320/5.jpg)
+
+-----
+
+Ukrainian city bombed by Russia.
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220320/6.jpg)
+
+-----
+
+
+
+[@HannaLiubakova](https://twitter.com/HannaLiubakova):
+
+[#Ukraine](https://twitter.com/hashtag/Ukraine?src=hashtag_click) Lviv. Several missiles hit the aircraft repair plant. The buildings were destroyed by the blows. The active work of the plant was stopped in advance, so there are no casualties as of now.
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220320/7.jpg)
+
+-----
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
