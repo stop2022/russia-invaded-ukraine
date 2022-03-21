@@ -497,6 +497,192 @@ Ukrainian city bombed by Russia.
 
 -----
 
+## 2022-03-21
+
+[@BadboyBettereal](https://twitter.com/BadboyBettereal):
+
+#BREAKING in #UKRAINE 🛒🤯💥 STRONG IMAGES : In Kharkiv, a grenade flew at people who were in line at the supermarket #UkraineWar
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220321/1.gif)
+
+----
+
+[@markito0171](https://twitter.com/markito0171):
+
+[#Mariupol](https://twitter.com/hashtag/Mariupol?src=hashtag_click) city in south [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hashtag_click) is burning
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220321/2.gif)
+
+------
+
+[@avalaina](https://twitter.com/avalaina):
+
+«We hit only military infrastructure with precision strikes in Ukraine», Putin said. Somewhere in an ordinary kitchen in a ordinary house in the Kharkiv region
+
+[#RussianWarCrimes](https://twitter.com/hashtag/RussianWarCrimes?src=hashtag_click)
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220321/1.jpg)
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220321/2.jpg)
+
+----
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220321/3.jpg)
+
+----
+
+[@avalaina](https://twitter.com/avalaina)
+
+Look how the "second strongest army" shoots peaceful demonstrators in Kherson. And let me remind you that we ask for international presence in the occupied cities.  @UN
+ @OSCE
+ @coe
+ where are you? We need you on the ground.
+#StandWithUkraine
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220321/3.gif)
+
+------
+
+[@Buchenwald_Dora](https://twitter.com/Buchenwald_Dora):
+
+Boris Romantschenko survived the concentration camps [#Buchenwald](https://twitter.com/hashtag/Buchenwald?src=hashtag_click), [#Peenemünde](https://twitter.com/hashtag/Peenemünde?src=hashtag_click), [#Dora](https://twitter.com/hashtag/Dora?src=hashtag_click) and [#BergenBelsen](https://twitter.com/hashtag/BergenBelsen?src=hashtag_click). Now he has been killed by a bullet that hit his house in [#Charkiv](https://twitter.com/hashtag/Charkiv?src=hashtag_click), [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hashtag_click). He was 96 years old. We are stunned.
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220321/4.jpg)
+
+----
+
+Russian soldiers steal in Ukraine.
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220321/4.gif)
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220321/5.gif)
+
+------
+
+[@revishvilig](https://twitter.com/revishvilig):
+
+#Kherson right now, #Russian invaders firing on civilians in the streets.
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220321/6.gif)
+
+------
+
+[@maria_avdv](https://twitter.com/maria_avdv):
+
+I have already seen more destruction and death in those 26 days than in my entire life. But I still can't get used to these horrifying scenes Russian war has brought to my home city Kharkiv and to Ukraine.
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220321/7.gif)
+
+-----
+
+[@avalaina](https://twitter.com/avalaina):
+
+One of Leroy Merlin's employees was killed in Kyiv after yesterday's explosion. French company Leroy Merlin and ADEO Holding are one of the largest taxpayers in Russia. Ukrainian office demanded from them to leave Russia. But they were disconnected from corporate communications
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220321/5.jpg)
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220321/6.jpg)
+
+----
+
+[@avalaina](https://twitter.com/avalaina)
+
+In Kherson, on Svoboda Square, Russians  threw stun grenades at locals protesters and opened fire against unarmed civilians. There are wounded. [#RussianWarCrimes](https://twitter.com/hashtag/RussianWarCrimes?src=hashtag_click)  Video: telegram channel "Vgoru"
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220321/8.gif)
+
+
+
+----
+
+[@KyivIndependent](https://twitter.com/KyivIndependent)
+
+
+
+The video shows the destroyed Retroville shopping mall in Kyiv, following an overnight missile strike. According to Prosecutor General's Office, at least eight people were killed. Video: Proof of war in Ukraine/Telegram
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220321/9.gif)
+
+
+
+------
+
+[@TwoHappyDachs](https://twitter.com/TwoHappyDachs)
+
+Russians are coming  Demilitarisation and densification of trading centre in Kyiv
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220321/7.jpg)
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220321/8.jpg)
+
+
+
+------
+
+[@guillaume_ptak](https://twitter.com/guillaume_ptak)
+
+According to [#Kyiv](https://twitter.com/hashtag/Kyiv?src=hashtag_click) mayor 
+
+[@Vitaliy_Klychko](https://twitter.com/Vitaliy_Klychko)
+
+, several explosions have rocked the Podilskyi district of the capital. Houses and a shopping center have reportedly been hit. Emergency services already on location. Stay tuned. [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hashtag_click) [#KyivNow](https://twitter.com/hashtag/KyivNow?src=hashtag_click) 
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220321/9.jpg)
+
+
+
+------
+
+[@avalaina](https://twitter.com/avalaina)
+
+The whole Luhansk region is in ruins: there is not a single settlement that was not shelled by Russian troops.  It’s how “Russian liberation” looks like
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220321/10.jpg)
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220321/11.jpg)
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220321/12.jpg)
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220321/13.jpg)
+
+
+
+-----
+
+[@BillBypacca](https://twitter.com/BillBypacca)
+
+Warning, it's graphic. Received  this morning
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220321/10.gif)
+
+
+
+
+
+
+
+------
+
+
+
+
+
+
+
+
+
+
+
 
 
 
