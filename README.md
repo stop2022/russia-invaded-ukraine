@@ -673,6 +673,110 @@ Warning, it's graphic. Received  this morning
 
 ------
 
+## 2022-03-22
+
+[@Polk_Azov](https://twitter.com/Polk_Azov):
+
+Russian aircrafts chaotically drop bombs on the Mariupol infrastructure. Factories and industrial enterprises that provided employment and were the metallurgy centers of international trade are beeing destroyed now by the enemy. Occupiers are trying to destroy Ukraine's economy
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220322/1.gif)
+
+
+
+---
+
+[@AndriyMazko](https://twitter.com/AndriyMazko):
+
+Russia attacked Ukraine.Russian soldiers kill civilians and children every day.They fire at residential buildings, schools, hospitals!You know about this, but you continue to serve Russian ships, let cargo into Russia through your country.Stop it!Confirm your support in action!
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220322/1.jpg)
+
+
+
+
+
+----
+
+[@ukraine_world](https://twitter.com/ukraine_world):
+
+The footage of Russian invaders stealing the carpet. Somewhere in Kyiv oblast.
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220322/2.gif)
+
+
+
+---
+
+[@max_katz](https://twitter.com/max_katz):
+
+Kyiv after the Russian attack. People lived peacefully and calmly here until Putin started shooting at their houses for no reason.
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220322/2.jpg)
+
+
+
+
+
+
+
+----
+
+[@blueboy1969](https://twitter.com/blueboy1969):
+
+#Ukraine: Something fascinating from #Kyiv; tho used against a land target, it seems that Ru used an 3M-51 "Alfa" anti-ship missile, which has secondary land-attack capabilities. Likely what we see is the the subsonic carrier stage of the 3-stage 3M-51.
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220322/3.jpg)
+
+
+
+
+
+----
+
+[@avalaina](https://twitter.com/avalaina):
+Resident of Kyiv collects his belongings left in his apartment after the rocket attack on the capital by Russian troops
+#RussianWarCrimes
+Video Реальная война
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220322/3.gif)
+
+
+
+
+
+---
+
+
+
+corner of ukraine
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220322/4.jpg)
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220322/5.jpg)
+
+
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220322/6.jpg)
+
+
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220322/7.jpg)
 
 
 
@@ -682,18 +786,7 @@ Warning, it's graphic. Received  this morning
 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
+----
 
 
 
