@@ -1,5 +1,24 @@
 # russia-invaded-ukraine
+
 Introducing the 2022 Russian invasion of the sovereign state Ukraine.
+
+
+
+-----
+
+
+
+
+
+Julia Zdanovskaya, 21 years old. Mathematician, silver medalist of the European Olympiad in Mathematics for Girls 2017. Killed by a Russian missile fired in Kharkiv on March 8.
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220309/1.jpg)
+
+
+
+
+
+
 
 
 
@@ -787,6 +806,71 @@ corner of ukraine
 
 
 ----
+
+
+
+## 2022-03-23
+
+
+
+[@avalaina](https://twitter.com/avalaina):
+
+During the siege of Mariupol by the Russian invaders the young gymnast Yekaterina Dyachenko was died. This was reported by her coach Anastasia Meshchanenkova.
+#RussianWarCrimes
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220323/1.jpg)
+
+
+
+
+
+
+
+
+
+
+
+----
+
+[@avalaina](https://twitter.com/avalaina):
+
+Remember him. This is Mikhail Mizintsev. He is leading the siege of Mariupol. It was he who ordered the bombing of a children's hospital, the drama theatre etc. He has huge experience of destroying cities in Syria. We’ll take care of the meeting him in the Hague [#RussianWarCrimes](https://twitter.com/hashtag/RussianWarCrimes?src=hashtag_click)
+
+
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220323/2.jpg)
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+[@avalaina](https://twitter.com/avalaina):
+
+Mariupol now. A former beautiful city of 450,000 people who lived in peace before the arrival of the Russian army. Russians will have to answer for everything
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220323/3.jpg)
+
+
+
+
+
+
+
+
+
+
 
 
 
