@@ -1,5 +1,4 @@
 # russia-invaded-ukraine
-
 Introducing the 2022 Russian invasion of the sovereign state Ukraine.
 
 
@@ -861,6 +860,137 @@ Remember him. This is Mikhail Mizintsev. He is leading the siege of Mariupol. It
 Mariupol now. A former beautiful city of 450,000 people who lived in peace before the arrival of the Russian army. Russians will have to answer for everything
 
 ![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220323/3.jpg)
+
+
+
+
+
+
+
+
+
+
+## 2022-03-24
+
+
+
+[@lapatina_](https://twitter.com/lapatina_):
+
+[#Mariupol](https://twitter.com/hashtag/Mariupol?src=hashtag_click) today.
+
+
+
+
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220324/1.jpg)
+
+
+
+
+
+
+
+----
+
+[@lapatina_](https://twitter.com/lapatina_):
+
+Central House of Culture in [#Irpin](https://twitter.com/hashtag/Irpin?src=hashtag_click)https://twitter.com/hashtag/RussianWarCrimes?src=hashtag_click)
+
+
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220324/2.jpg)
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+[[@IgorKossov](https://twitter.com/IgorKossov):
+
+According to the mayor of Irpin, Russians used white phosphorus in the area last night. This is the start of something really fucking disgusting.
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220324/3.jpg)
+
+
+
+
+
+-----
+
+[@avalaina](https://twitter.com/avalaina)
+
+
+Tomorrow at 4 am it will be exactly a month since Putin launched a full-scale invasion of my country. He brought death, pain, and destruction to Ukraine and our people. And thus he started the beginning of the collapse of his own evil regime
+#RussianWarCrimes
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220324/4.jpg)
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220324/5.jpg)
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220324/6.jpg)
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220324/7.jpg)
+
+
+
+
+
+
+
+---
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
