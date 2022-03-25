@@ -1023,6 +1023,28 @@ This is Nina.  She is a professional pharmacist from Kharkiv. Before the Russian
 
 
 
+## 2022-03-25
+
+
+
+
+
+----
+
+[@avalaina](https://twitter.com/avalaina)
+
+Russians fired on the Nova Poshta postal department in Kharkiv, where Kharkiv residents were receiving humanitarian aid.  Here the video of a rocket hitting a crowd of civilians in line
+#RussiansWarCrimes
+
+
+
+
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220325/1.jpg)
+
+
 
 
 
