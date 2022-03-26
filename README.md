@@ -1056,6 +1056,132 @@ Russians fired on the Nova Poshta postal department in Kharkiv, where Kharkiv re
 
 
 
+## 2022-03-26
+
+
+
+
+
+----
+
+[@ArmedForcesUkr](https://twitter.com/ArmedForcesUkr)
+
+Ukraine after Russian occupier shelling
+
+
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220326/1.jpg)
+
+
+
+
+
+
+
+----
+
+[@johanknorberg](https://twitter.com/johanknorberg)
+
+When Putin wants to ”de-Nazify”, he sends for Dmitry Utkin. In 2014, Utkin founded the mercenary Wagner Group, named after Hitler’s favourite composer. Tatoos: Waffen-SS collar tabs & Nazi Parteiadler. Around 2016, Putin awarded Utkin the title "Hero of the Russian Federation".
+
+
+
+
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220326/2.jpg)
+
+
+
+
+
+---
+
+[@JuliaDavisNews](https://twitter.com/JuliaDavisNews)
+
+Russian state TV obsessively asserts that Zelensky is not in Kyiv, but elsewhere abroad. Why does it matter? Because they think that Ukrainians are fighting for Zelensky and not for their country. As members of the cult that worships Putin, that's what makes sense to them.
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220326/3.jpg)
+
+
+
+
+
+----
+
+[@MaximEristavi](https://twitter.com/MaximEristavi)
+
+mariupol residents slaughtered by russians while cooking food over an open fire in the yard of their own apartment building
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220326/4.jpg)
+
+
+
+----
+
+[@ukraine_world](https://twitter.com/ukraine_world)
+
+Ukrainian cities before and after the Russian invasion #StopRussianAggression
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220326/5.jpg)
+
+
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220326/6.jpg)
+
+
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220326/7.jpg)
+
+
+
+
+
+
+
+
+
+---
+
+[@nexta_tv](https://twitter.com/nexta_tv)
+
+Since the beginning of the war, shelling in [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hashtag_click) has affected at least 59 buildings of religious significance in at least eight regions.  Most of the destroyed churches are Orthodox, said the State Service of Ukraine for Ethnopolitics and Freedom of Conscience.
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220326/8.jpg)
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220326/9.jpg)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
