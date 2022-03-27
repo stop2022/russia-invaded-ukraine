@@ -1177,6 +1177,94 @@ Since the beginning of the war, shelling in [#Ukraine](https://twitter.com/hasht
 
 
 
+## 2022-03-27
+
+
+
+
+
+----
+
+'Putin wants to rebuild empire,' says Ukrainian MP as Russia bombs oil plant in Lviv
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220327/1.jpg)
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220327/2.jpg)
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220327/3.jpg)
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220327/4.jpg)
+
+
+
+
+
+
+
+
+
+
+
+----
+
+
+
+[@KSergatskova](https://twitter.com/KSergatskova)
+
+Russian occupiers in [#Melitopol](https://twitter.com/hashtag/Melitopol?src=hashtag_click) asked journalist Svitlana Zalyzetska to stop working at her news website “Ria-Melitopol”. She refused. Then they took her 75-year-old father hostage. Josip Zalyzetsky spent 4 days in Russian captivity. 1/2
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220327/5.jpg)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
