@@ -1225,6 +1225,132 @@ Russian occupiers in [#Melitopol](https://twitter.com/hashtag/Melitopol?src=hash
 
 
 
+## 2022-03-28  day 33
+
+
+
+
+
+----
+
+In St. Petersburg, a girl was detained for attending an anti-war performance.  
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220328/1.jpg)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+----
+
+[Ukraine government organization](https://help.twitter.com/rules-and-policies/state-affiliated)
+
+Another day, another russian war crime. Yesterday it was Krasnohorivka near Donetsk. Today the russians used banned cluster munitions against civilians near Kryvyi Rih. An investigation is underway. Those responsible will face the tribunal.
+
+#RussianWarCrimesinUA #stoprussia
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220328/2.jpg)
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220328/3.jpg)
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220328/4.jpg)
+
+
+
+---
+
+
+
+Outside the Russian Embassy in Norway 
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220328/5.jpg)
+
+
+
+
+
+
+
+-----
+
+Childrens shoes and toys have been put on the ground in Times Square to signify dead children killed in the Russian invasion of #Ukraine… 
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220328/6.jpg)
+
+
+
+
+
+
+
+
+
+---
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
