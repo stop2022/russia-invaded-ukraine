@@ -1303,8 +1303,83 @@ Childrens shoes and toys have been put on the ground in Times Square to signify 
 
 
 
+## 2022-03-29  day 34
+
+
+
+
+
+----
+
+[@Lyla_lilas](https://twitter.com/Lyla_lilas)
+
+[#Mariupol](https://twitter.com/hashtag/Mariupol?src=hashtag_click) today
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220329/1.jpg)
+
+
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220329/2.jpg)
+
+
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220329/3.jpg)
+
+
+
+
+
+
+
+
+
+
+
+----
+
+[Mykolaiv](https://twitter.com/hashtag/Mykolaiv?src=hashtag_click) regional administration building destroyed today. 7 killed. 22 wounded
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220329/4.jpg)
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220329/5.jpg)
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220329/6.jpg)
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220329/7.jpg)
+
+
+
+
+
+
+
+
+
 ---
 
+
+
+[@lesiavasylenko](https://twitter.com/lesiavasylenko)
+
+The streets of [#Mariupol](https://twitter.com/hashtag/Mariupol?src=hashtag_click) are a cemetery. Graves everywhere. 5000 Ukrainians killed, 200 of them children.
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220329/8.jpg)
+
+
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220329/9.jpg)
 
 
 
