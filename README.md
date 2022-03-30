@@ -1385,6 +1385,76 @@ The streets of [#Mariupol](https://twitter.com/hashtag/Mariupol?src=hashtag_clic
 
 
 
+## 2022-03-30  day 35
+
+
+
+
+
+----
+
+Russia'n army bombed a building marked with the "Red Cross" in Mariupol south Ukraine
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220330/1.jpg)
+
+
+
+
+
+---
+
+[The destruction of Mariupol
+
+Drone footage, March 30.
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220330/2.jpg)
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220330/3.jpg)
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220330/4.jpg)
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220330/5.jpg)
+
+
+
+
+
+---
+
+Babushka in Mariupol looks terrified as she's led away by Russian troops
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220330/6.jpg)
+
+
+
+
+
+
+
+-----
+
+Russia isn't stopping bombing in Kyiv region. The State fiscal service University in Irpin, NW Kyiv, was shelled last night:
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220330/7.jpg)
+
+
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220330/8.jpg)
+
+
+
+
+
+
+
 
 
 
