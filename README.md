@@ -1447,11 +1447,21 @@ Russia isn't stopping bombing in Kyiv region. The State fiscal service Universit
 
 
 
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220330/8.jpg)
 
 
 
 
 
+
+
+
+
+----
+
+The Russians destroyed a big food warehouse on the eastern side of Kyiv. Hit most likely by more than one missile.
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220330/9.jpg)
 
 
 
