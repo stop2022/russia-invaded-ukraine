@@ -1470,6 +1470,100 @@ The Russians destroyed a big food warehouse on the eastern side of Kyiv. Hit mos
 
 
 
+## 2022-03-31  day 36
+
+
+
+
+
+----
+
+@CBSNews
+
+"Where is my dad?" Dima, a young Ukrainian boy, cries from his hospital bed as he asks for his father, who, like Dima, was injured in Mariupol. His father is being treated in another part of the hospital.
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220331/1.jpg)
+
+
+
+
+
+
+
+---
+
+Civilians in Chernihiv have been trapped for days, in a cascading crisis without access to basic services and with no means of escape, all while living under the constant threat of Russian attacks.”
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220331/2.jpg)
+
+
+
+
+
+
+
+
+
+----
+
+Volunteer rescuing abandoned pets
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220331/3.jpg)
+
+
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220331/4.jpg)
+
+
+
+
+
+---
+
+Ukraine sends buses to Mariupol for rescue effort
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220331/5.jpg)
+
+
+
+
+
+
+
+----
+
+**Ukraine** now
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220331/6.jpg)
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220331/7.jpg)
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220331/8.jpg)
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220331/9.jpg)
+
+
+
+
+
+---
+
+[@sumlenny](https://twitter.com/sumlenny)
+
+
+
+In Kukhari village, north from Kyiv, Russian army has left a destroyed school and a vandalized monument for Soviet soldiers fallen in WWII. What a great “denazification” by Russians.
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220331/10.jpg)
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220331/11.jpg)
+
 
 
 
