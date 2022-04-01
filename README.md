@@ -1572,6 +1572,92 @@ In Kukhari village, north from Kyiv, Russian army has left a destroyed school an
 
 
 
+## 2022-04-01  day 37
+
+
+
+
+
+----
+
+[@BowenBBC](https://twitter.com/BowenBBC)
+
+With Ukrainian troops just after they recaptured strategic area west of Kyiv. This nightmarish stretch of road is a crime scene, with evidence of killing by Russians that could amount to war crimes.
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220401/1.jpg)
+
+
+
+
+
+---
+
+
+
+Russians machine gunned hundreds of cows at a farm outside Kharkiv.
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220401/2.jpg)
+
+
+
+
+
+
+
+
+
+----
+
+Denazification and demilitarization of a barn in Kharkiv region
+
+Interestingly, the RF Armed Forces will say that there was also an ammunition depot and an Azov base?
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220401/3.jpg)
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220401/4.jpg)
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220401/5.jpg)
+
+
+
+
+
+
+
+
+
+
+
+------
+
+[@liusivaya](https://twitter.com/liusivaya)
+
+
+
+Hoy en Donetsk un misil ha alcanzado un colegio. Hace 2 días otro misil alcanzó un edificio de 9 plantas lleno de civiles. Hoy porque están en guerra. Hace 8 años porque eran prorrusos. Gracias por el silencio, medios de comunicación. Gracias por las armas, Pedro Sánchez.
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220401/6.jpg)
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220401/7.jpg)
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220401/8.jpg)
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220401/9.jpg)
+
 
 
 
