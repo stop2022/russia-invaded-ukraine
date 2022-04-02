@@ -1670,6 +1670,84 @@ Hoy en Donetsk un misil ha alcanzado un colegio. Hace 2 días otro misil alcanz�
 
 
 
+## 2022-04-02  day 38
+
+
+
+
+
+----
+
+Traurige Gewissheit. Der seit Mitte März vermisste ukrainische Fotograf Maks Lewin wurde in der Oblast Kiew tot aufgefunden.
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220402/1.jpg)
+
+
+
+
+
+---
+
+In Belarus, Russians are sending items they looted in Ukraine back home by mail.
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220402/2.jpg)
+
+
+
+
+
+
+
+
+
+----
+
+Russian looters tried to take washing machines out of Ukraine
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220402/3.jpg)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
