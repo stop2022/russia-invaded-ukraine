@@ -1716,6 +1716,114 @@ Russian looters tried to take washing machines out of Ukraine
 
 
 
+## 2022-04-03  day 39
+
+
+
+
+
+----
+
+[@GoncharenkoUa](https://twitter.com/GoncharenkoUa)
+
+Russian oil and gas are covered in the blood of Ukrainians. Stop sponsoring the murders of our loved ones! This is a gas station near Kyiv, the capital of Ukraine.
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220403/1.jpg)
+
+
+
+---
+
+
+
+[@IAPonomarenko](https://twitter.com/IAPonomarenko)
+
+DO YOU NOW GET IT WHY UKRAINE NEEDS ALL WEAPONS THE WORLD CAN GIVE?
+
+
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220403/2.jpg)
+
+
+
+---
+
+Russian troops killed civilians along the way as they retreated from the outskirts of Kyiv, and more than 400 civilian bodies have been found.
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220403/1.gif)
+
+
+
+-----
+
+[@matviiok](https://twitter.com/matviiok)
+
+https://twitter.com/matviiok/status/1510684662414426114)
+
+[#BuchaMassacre](https://twitter.com/hashtag/BuchaMassacre?src=hashtag_click) [#Bucha](https://twitter.com/hashtag/Bucha?src=hashtag_click)  A 3-years-old girl. Hands and mouth tied up. Dead. Laying on top of her 17-years-old sister.  Burn in hell, russian occupants. [#Russians](https://twitter.com/hashtag/Russians?src=hashtag_click) [#RussiaInvadedUkraine](https://twitter.com/hashtag/RussiaInvadedUkraine?src=hashtag_click) [#war](https://twitter.com/hashtag/war?src=hashtag_click) [#Azov](https://twitter.com/hashtag/Azov?src=hashtag_click) [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hashtag_click) [#UkraineUnderAttack](https://twitter.com/hashtag/UkraineUnderAttack?src=hashtag_click) [#RussianArmy](https://twitter.com/hashtag/RussianArmy?src=hashtag_click) [#RussianWarCrimesInUkraine](https://twitter.com/hashtag/RussianWarCrimesInUkraine?src=hashtag_click) [#PutinWarCrimes](https://twitter.com/hashtag/PutinWarCrimes?src=hashtag_click)
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220403/3.jpg)
+
+
+
+
+
+
+
+
+
+
+
+## 2022-04-04  day 40
+
+
+
+[@gingergirlukr](https://twitter.com/gingergirlukr)
+
+People were shot in a car right on the road near [#Borodyanka](https://twitter.com/hashtag/Borodyanka?src=hashtag_click) [#Ukriane](https://twitter.com/hashtag/Ukriane?src=hashtag_click)
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220404/1.gif)
+
+
+
+
+
+---
+
+[@sternenko](https://twitter.com/sternenko)
+
+European countries, do you still trade with the Russians? still don't want to give Ukraine planes, air defense and artillery? then your passivity helps the Russians to commit this genocide against the Ukrainians
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220404/1.jpg)
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220404/2.jpg)
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220404/3.jpg)
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220404/4.jpg)
+
+
+
+-----
+
+The mayor of Motyzhyn, Ukraine, her husband and son, a family of three, were kidnapped by the Russian army on March 23, and their bodies have been found and tortured to death
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220404/5.jpg)
+
+
+
+
+
 
 
 
