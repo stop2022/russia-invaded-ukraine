@@ -1824,6 +1824,508 @@ The mayor of Motyzhyn, Ukraine, her husband and son, a family of three, were kid
 
 
 
+## 2022-04-05  day 41-BuchaMassacre
+
+
+
+The dog does not leave its owner, who was killed by the #Russian invaders. #Kyiv region.
+
+
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220405/1.jpg)
+
+#Georgia, #Gagra 1992 
+#RussianWarCrimes are same for years
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220405/2.jpg)
+
+
+
+------
+
+
+
+Russians' torture chamber discovered in basement of children's health resort in Bucha. 
+
+The bodies of five murdered men were discovered in the basement.
+
+Their hands had been tied and they appear to have been tortured. 
+
+Source: Prosecutor General's Office of Ukraine.
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220405/3.jpg)
+
+
+
+---
+
+When your people are brutally murdered in the XXI century… Bucha. Mass burial of civilians. [#BuchaMassacre](https://twitter.com/hashtag/BuchaMassacre?src=hashtag_click) [#stoprussia](https://twitter.com/hashtag/stoprussia?src=hashtag_click)
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220405/4.jpg)
+
+
+
+
+
+---
+
+
+
+"Destroyed because the farm saved the children"
+Russians destroyed the farm of Kharkiv Dairy Plant LLC, a leading producer of dairy products in the Kharkiv region. Cowsheds were destroyed and dozens of animals died. It is known that TM "Agromol" has two farms of its own ===>>>
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220405/5.jpg)
+
+
+
+
+
+----
+
+[#Russia](https://twitter.com/hashtag/Russia?src=hashtag_click) invaders torture local leader in [#Chernihiv](https://twitter.com/hashtag/Chernihiv?src=hashtag_click) oblast and stage mock (or real) executions “for entertainment” [#TheTaken](https://twitter.com/hashtag/TheTaken?src=hashtag_click) [#StandWithUkraine](https://twitter.com/hashtag/StandWithUkraine?src=hashtag_click) [#RussiaWarCrimes](https://twitter.com/hashtag/RussiaWarCrimes?src=hashtag_click) [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hashtag_click)  [https://khpg.org/en/1608810348](https://t.co/ax0HeceBxu)
+
+
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220405/6.jpg)
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220405/7.jpg)
+
+
+
+---
+
+
+
+Ukrainian officials have invited a large number of journalists from home and abroad to document the scene of the Russian massacre in Ukraine.
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220405/8.jpg)
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220405/9.jpg)
+
+
+
+
+
+
+
+---
+
+
+
+Ukrainian family, killed by Russians in Bucha. 3 adults and 3 dead children. Still believe these barbarians will stop in Ukraine? [#StopPutinNOW](https://twitter.com/hashtag/StopPutinNOW?src=hashtag_click) [#StopRussia](https://twitter.com/hashtag/StopRussia?src=hashtag_click) [#BuchaMasacre](https://twitter.com/hashtag/BuchaMasacre?src=hashtag_click)
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220405/10.jpg)
+
+
+
+----
+
+The last Russian army in Butcha was the unit number 51460 from the Khabarovsk Krai. Its commander, pictured above, is Lieutenant Colonel Azatbek Asanbekovich. Remember the faces of these executioners, they will surely be punished with justice.
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220405/11.jpg)
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220405/12.jpg)
+
+
+
+
+
+------
+
+Ukrainian govt doing a masterful job here. 1) They've released names of individuals in Russian brigade that committed atrocities in [#Bucha](https://twitter.com/hashtag/Bucha?src=hashtag_click) 2) They report the brigade is redeploying toward Kharkiv  First, let's hope US/NATO intel is used to capture these suspected war criminals
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220405/13.jpg)
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220405/14.jpg)
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220405/15.jpg)
+
+
+
+
+
+
+
+
+
+---
+
+## 2022-04-06  day 42
+
+
+
+A Russian artist has recreated a photo of a dead man in the Ukrainian town of Bucha
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220406/1.jpg)
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220406/2.jpg)
+
+
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220406/3.jpg)
+
+
+
+
+
+---
+
+NEW drone footage shows shocking destruction in town of Stoyanka near Kyiv
+
+
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220406/4.jpg)
+
+
+
+
+
+----
+
+İn 1990 20 January, when people rose up in Baku demanding freedom and independence, the same russia,massacred the civilians and called them terrorists.
+
+
+
+
+
+----
+
+Borodyanka, near Kyiv.
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220406/5.jpg)
+
+
+
+-----
+
+
+
+Anti-war protest at the [#German](https://twitter.com/hashtag/German?src=hashtag_click) Embassy in [#Vilnius](https://twitter.com/hashtag/Vilnius?src=hashtag_click)
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220406/6.jpg)
+
+
+
+-----
+
+The hate is real. In [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hashtag_click) they are already made tombstone for Putler.  [#UkraineWar](https://twitter.com/hashtag/UkraineWar?src=hashtag_click) [#UkraineUnderAttack](https://twitter.com/hashtag/UkraineUnderAttack?src=hashtag_click)
+
+
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220406/7.jpg)
+
+
+
+----
+
+It’s not a football match Ukraine 3 Russia 1 it’s a war. It’s not some missiles fired from a drone and an explosion. It’s Hand to hand, it’s someones son or daughter, and in the shadows stands the spectre of rape, torture, destruction, denigration and the dark horrors of our soul
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220406/8.jpg)
+
+
+
+----
+
+
+
+
+
+More and more dead bodies are being found in Kyiv suburbs Noone counts dead, the number of civilians killed by russian orcs here would be terrifying Pic: Denys Kazansky
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220406/9.jpg)
+
+
+
+---
+
+Russian airstrike hits ambulance at Ukraine children's hospital
+
+[source]: https://nypost.com/2022/04/06/ambulance-hit-during-airstrike-on-ukraine-childrens-hospital/?utm_source=twitter_sitebuttons&amp;utm_medium=site%20buttons&amp;utm_campaign=site%20buttons	"source"
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220406/10.jpg)
+
+
+
+
+
+
+
+
+
+## 2022-04-07  day 43
+
+A lake in front of the Russian Embassy in Vilnius was colored red by activists, symbolizing the blood of Ukrainians that have been killed. [#Anonymous](https://twitter.com/hashtag/Anonymous?src=hashtag_click) [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hashtag_click) [#UkraineRussianWar](https://twitter.com/hashtag/UkraineRussianWar?src=hashtag_click) [#UkraineWar](https://twitter.com/hashtag/UkraineWar?src=hashtag_click)
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220407/1.jpg)
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220407/2.jpg)
+
+
+
+---
+
+
+
+OMG, this is an absolutely horrific video. Burnt bodies, some of whom look like Ukrainian soldiers, reportedly filmed in Mariupol. Released on a Russian hate channel as a trophy relating to some list they link to. (not posting source yet for obvious reasons) WARNING 21+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220407/3.jpg)
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220407/4.jpg)
+
+
+
+----
+
+The [@WSJ has documented alleged Russian war crimes in Mariupol, including evidence of cluster bombs being used by Putin's forces to specifically target residential areas of the besieged city. Video Part 1/4 [#Ukraine](https://twitter.com/hashtag/Ukraine?src=hashtag_click)
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220407/5.jpg)
+
+
+
+
+
+---
+
+Around 20 percent of [#Irpin](https://twitter.com/hashtag/Irpin?src=hashtag_click) streets have been cleaned from debris already, just over a week after the city was liberated from Russian occupants. Hundreds of people volunteered to help.
+
+
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220407/6.jpg)
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220407/7.jpg)
+
+
+
+
+
+
+
+
+
+## 2022-04-08  day 44 KramatorskRailwayStation
+
+russians carried out two missile stikes on railway station in Kramatorsk, where evacuation of civillians was taking place. But russian war criminals not only deliberately targeted thousands of people; they've used cluster munitions. More than 30 killed More that  100 injured
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220408/1.jpg)
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220408/2.jpg)
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220408/3.jpg)
+
+
+
+-----
+
+Mariupol before and after Putin destroyed it.
+
+
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220408/4.jpg)
+
+---
+
+After liberation from Russian occupation in the village of Husarivka, Kharkiv oblast, the police found mutilated bodies, including a child, on the territory of a private house. People were burned alive. [#StopRussia](https://twitter.com/hashtag/StopRussia?src=hashtag_click) 
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220408/5.jpg)
+
+---
+
+
+
+A resident of Bucha shows her daughter's body. She was shot dead by a Russian soldier on the first day during the occupation of the city.  Her mother buried her as best she could in the yard.
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220408/6.jpg)
+
+---
+
+This woman in [#Borodyanka](https://twitter.com/hashtag/Borodyanka?src=hashtag_click) waits for 3 days for her family to be pulled out from the rubble. Thousands of bodies found under wreckage through [#Kyiv](https://twitter.com/hashtag/Kyiv?src=hashtag_click) region
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220408/7.jpg)
+
+
+
+
+
+----
+
+Disturbing video of the horrific scene at Kramatorsk railway station today
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220408/8.jpg)
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220408/9.jpg)
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220408/10.jpg)
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220408/11.jpg)
+
+
+
+----
+
+
+
+## 2022-04-09  day 45
+
+
+
+From russia with love.
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220409/1.jpg)
+
+
+
+
+
+
+
+-----
+
+
+
+An activist who went on a solitary anti-war picket in front of the Ministry of Defense in [#Moscow](https://twitter.com/hashtag/Moscow?src=hashtag_click) was detained.
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220409/2.jpg)
+
+
+
+
+
+-----
+
+
+
+A children's toy covered in blood at the train station in [#Kramatorsk](https://twitter.com/hashtag/Kramatorsk?src=hashtag_click).
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220409/3.jpg)
+
+
+
+-----
+
+This guy’s name is Yevheniy Kovalenko. After coming back from Ukraine he mailed to his home in Siberia 17 parcels with overall weight 440 kg. Of course, they leave their dead on the field - there’s no room.
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220409/4.jpg)
+
+
+
+
+
+----
+
+
+
+I really don’t understand this. Russians mined a washing machine in one of the houses. Probably they were angry that they failed to kill hosts of this house and wanted to make them died after their returning home
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220409/5.jpg)
+
+
+
+----
+
+
+
+
+
+This girl from Mariupol was with her family at the Drama Theater when a Russian bomb hit it. The child miraculously survived, but all her family - her mother, father and sister were killed in the blast. [#RussianWarCrimes](https://twitter.com/hashtag/RussianWarCrimes?src=hashtag_click)  Video: Mariupol City Council
+
+
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220409/6.jpg)
+
+
+
+
+
+------
+
+It was important to start my visit in Bucha. Because in Bucha our humanity was shattered. My message to Ukrainian people: Those responsible for the atrocities will be brought to justice.  Your fight is our fight. I’m in Kyiv today to tell you that Europe is on your side.
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220409/7.jpg)
+
+
+
+
+
+
+
+-----
+
+#Bucha, in the yard where three people were killed, the russian occupiers also killed a dog. The sheepdog miraculously managed to escape.
+And now he doesn't leave his murdered friend.
+#StopRussia #RussiaWarCrimes
+
+![](https://raw.githubusercontent.com/stop2022/russia-invaded-ukraine/main/images/20220409/8.jpg)
+
 
 
 
